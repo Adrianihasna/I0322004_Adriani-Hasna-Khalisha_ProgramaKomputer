@@ -1,2 +1,2 @@
-# I0322004_Adriani-Hasna-Khalisha_ProgramaKomputer cobabisa
+# I0322004_Adriani-Hasna-Khalisha_ProgramaKomputer
 
